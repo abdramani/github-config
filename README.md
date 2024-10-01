@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kaffu02
+- 👋 Hi
 - 👀 I’m interested in coding, duh
 - 🌱 I’m currently learning a lot
 - 💞️ I’m looking to collaborate on everything but i'm very procrastinave (idk if that word exists but i'll check it later ... maybe)
